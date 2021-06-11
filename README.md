@@ -4,4 +4,4 @@
 - 💞️ I’m looking U
 - 📫 How to reach me contact me on tele: @Devilsangry
 
-ＫａｄｅｋＤｈａｒｍａ
+Ｋａｄｅｋ Ｄｈａｒｍａ
